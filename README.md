@@ -1,4 +1,4 @@
-### Hi there 👋 
+### Hi there👋 I'm a ...
 
 Passionate Tech Student| Full Stack Developer| Digital Marketing Enthusiast.
 
